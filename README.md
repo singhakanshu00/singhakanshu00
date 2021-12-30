@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @singhakanshu00
 - 👀 I’m interested in every opportunities and domain that will be designated to me.
-- 🌱 I’m a programmer that make things happen, learning and working on various projects.
+- 🌱 I’m a programmer holding problem solving skills like to make things happen.
 - 📫 How to reach me :- Email: akanshusingh0002@gmail.com
 
 <!---
